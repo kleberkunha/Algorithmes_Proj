@@ -1,0 +1,1 @@
+Exos Sort, K, apartaments - THP
